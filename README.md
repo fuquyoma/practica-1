@@ -1,0 +1,2 @@
+# fuquyoma.github.io
+Репозиторий
